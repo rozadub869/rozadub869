@@ -1,4 +1,4 @@
-zxcdvvcxbcxvjjglkklkl/km- 👋 Hi, I’m @rozadмсч
+zxcdvvcxbcxvjjglkklkl/km- 👋 Hi, I’m @bmnbnbmnrozadмсч
 - 🌱 I’m currently zxczxczxcleafjxhzxcadcxvfvxczxcxzghЧсячсdsr.vbming ...asdcxzczxjkasdsada
 - 💞️gggI’m looking asdtasxczxdasdodasxasxsaxassdsxcx asdcxzcollaboratцукаівcxzczxczczфівівіфвasdsdфasdzxce gon ...as
 - 📫 How to greuypeciasadl счм✨ sdaфівсчмraepoваsitory because its `README.mdsd (thizxcs file)asdasdasd appears on your GitHub profilcvbe.d
